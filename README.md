@@ -1,0 +1,1 @@
+# Deriving-the-FQcU-Lagrangian-from-QCD-A-First-Principles-Approach
